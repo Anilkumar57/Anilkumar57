@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to flirt with girls
 - 💞️ I’m looking to collaborate with nice programming girls to learn programming 
 - 📫 How to reach me? By insta: mr_cold_hearted
-- 😄 Pronouns: They/Them
+
 - ⚡ Fun fact: Im decent.
 
 <!---
